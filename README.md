@@ -2,7 +2,7 @@
 - 👀 I’m interested in theme park tycoon 3
 - 🌱 I’m currently learning about git hub
 - 💞️ I’m looking to collaborate on roblox
-- 📫 How to reach me on discord
+- 📫 How to reach me on discord my name is orabgeslices 2066
 
 <!---
 BouncinChicken/BouncinChicken is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
